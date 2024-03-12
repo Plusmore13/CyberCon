@@ -1,0 +1,2 @@
+# CyberCon  A Global interface identifying fraudulent websites ,webpages, Can locate source of heavy traffic spammers, scammers.I have unfortunately experienced first hand. Counterfeit organizations that are thriving on major social media as we speak.Basically I believe in time the web could be compromised through unrealistic practices. We all understand the importance of our information. A historic peak of 10.3 billion dollars lost to cyber crime.2021,2022. 
+Just imagine our infrastructure from eternal heist.Thats Stanley growing at a rate of 50% per year in the USA.
